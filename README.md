@@ -1,3 +1,4 @@
 # qian
 faf
 wi neb dy re bbu gtu ba 
+xi wei chu you dia ncha yi 
